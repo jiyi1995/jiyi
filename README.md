@@ -1,1 +1,1 @@
-https://github.com/jiyi1995/jiyi/blob/main/README.md
+https://v2r.dog/link/o5vzVxpooCR5Gxty?sub=3&extend=1
